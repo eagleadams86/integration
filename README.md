@@ -1,4 +1,4 @@
-# integration
+# From Nice Guy to Integrated Man
 
 Personal development notes on the journey from **Nice Guy to Integrated Man** — drawn from *No More Mr. Nice Guy* (Dr. Robert Glover), attachment theory, and the *Dear Men* podcast (hosted by Melanie Curtin).
 
